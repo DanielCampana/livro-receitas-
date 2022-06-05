@@ -1,5 +1,5 @@
 
-# Aliné é chata 
+# Receitas 
 
 ## Ingredientes 
 
